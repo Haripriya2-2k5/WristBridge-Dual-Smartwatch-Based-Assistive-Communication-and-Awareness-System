@@ -1,0 +1,1 @@
+# WristBridge-Dual-Smartwatch-Based-Assistive-Communication-and-Awareness-System
